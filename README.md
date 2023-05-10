@@ -1,1 +1,1 @@
-个人简历 https://resume.publicplatform.club/
+个人简历 https://resume.publicplatform.xyz/
