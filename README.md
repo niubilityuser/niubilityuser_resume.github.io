@@ -1,1 +1,1 @@
-个人简历 https://resume.publicplatform.xyz/
+个人简历 https://resume.zlgai.com/
